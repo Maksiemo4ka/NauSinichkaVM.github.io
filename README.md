@@ -1,0 +1,1 @@
+# NauSinichkaVM.github.io
